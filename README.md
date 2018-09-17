@@ -1,2 +1,0 @@
-# NiggercheatsHVH
-Cs Go Cheats
